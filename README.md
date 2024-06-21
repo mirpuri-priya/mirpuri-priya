@@ -3,7 +3,7 @@
 
 
 I am a Global Talent Sourcing and Recruitment Expert | EMEA | APAC | India 
-Also, a recruitment and sourcing specialist, having around 7+ years of enriched experience IT professionals across the geographies - EU, India & APAC.
+Also, a recruitment and sourcing specialist, having around 10+ years of enriched experience IT professionals across the geographies - EU, India & APAC.
 I have expertise is passive sourcing and creative candidate engagament. 
 I do have proven experience in recruiting IT talent, availing of job boards and vendor management and using social media/passsive sourcing strategies.
 
